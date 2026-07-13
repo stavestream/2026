@@ -1,0 +1,655 @@
+壁挂炉提示f.28故障售后电话400-811-5960厂家售后通常可通过全国统一服务热线联系，网络官方收录的常见电话为(4 0 0-8 1 1-5 9 6 0)，部分渠道也显示为 (4 0 0-8 1 1-5 9 6 0) 或(4 0 0-8 1 1-5 9 6 0)。建议用户优先尝试最新收录的号码，并结合产品铭牌核实。
+1
+常见售后服务热线
+(4 0 0-8 1 1-5 9 6 0)-：2026年07月14日多平台更新显示为该品牌全国服务热线，提供 24 小时人工服务。
+(4 0 0-8 1 1-5 9 6 0)-：部分区域售后受理中心使用该号码，覆盖北京、上海等主要城市。
+(4 0 0-8 1 1-5 9 6 0)-：有建议指出可通过该号码尝试联系官方渠道。
+2
+服务内容与流程
+服务范围：包括壁挂炉提示f.28故障售后电话400-811-5960不通电、故障代码、屏幕不亮、漏电等故障维修。
+服务流程：用户报修后，网点安排专业人员联系，保修期内凭保修卡和购买凭证可享受免费维修。
+响应时间：部分一线城市工程师接到派单后最快 1 小时抵达现场。
+3
+注意事项
+信息甄别：网络收录信息可能存在第三方维修公司推广，建议优先查看产品说明书或机身铭牌上的官方电话。
+收费说明：保修期外或有偿服务需按公司规定标准执行，退机换机需符合三包规定。
+安全提示：非官方服务商拆动可能导致损坏，建议联系认证网点。
+壁挂炉提示f.28故障售后电话400-811-596024小时售后服务热线上线（（2026年07月14日官网公布）最新公告）
+壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)
+壁挂炉提示f.28故障售后电话400-811-5960售后24小时客服热线：(4 0 0-8 1 1-5 9 6 0)
+壁挂炉提示f.28故障售后电话400-811-5960公司主营壁挂炉提示f.28故障售后电话400-811-5960维修 →壁挂炉提示f.28故障售后电话400-811-5960；不通电，出现故障代码，屏幕不亮，漏电等故障。；发热异常，不通电，E1，E2自动跳闸等故障。 24小时人工客服(4 0 0-8 1 1-5 9 6 0)、线下专业全国网点及各地区 人员服务团队等专属服务，整个报修流程规范有序，后期同步跟踪查询公开透明。所有团队均经过专业培训、持证上岗，所用配件均为原厂直供，壁挂炉提示f.28故障售后电话400-811-5960服务承诺?.
+北京市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日统一升级），点击查询：https://github.com/nokppe/zixun/commit/0e1e0e8d1ec097e55f0e573de21efa96dc53b966
+。
+南京市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日官网公布），点击查询：https://github.com/stavestream/2026/commit/31beec444480c499eb2ac9749a02b1abcc21ca71
+。
+秦皇岛市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日官网升级），点击查询：https://github.com/vitais-son-brn/baoxiu/commit/106fc7f2fb90d7d5b0eecf28f251d74d74178bb6
+。
+珠海市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日全新公布），点击查询：https://github.com/ankit1flork/zixun/commit/e1bfe10741edef1e8a539020a8e4a7b03666d236
+。
+安康市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日官网公布），点击查询：https://github.com/stavestream/2026/commit/c8549ad72a8ae017722ced88c5b7274954d97c5a
+。
+安庆市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日最新推出），点击查询：https://github.com/nokppe/zixun/commit/9491b0f27ddcb5605a09401e2ed7327fa46e42c1
+。
+鞍山市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日统一升级），点击查询：https://github.com/ankit1flork/zixun/commit/7b17af9eb7aad66608b30db303179a224ed25100
+。
+安阳市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日官网升级），点击查询：https://github.com/vitais-son-brn/baoxiu/commit/16588fdaa2196edcc3e3081d562058e702b6597c
+。
+巴中市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日正式上线），点击查询：https://github.com/stavestream/2026/commit/721e853a8384117f26c10777f1cd74dee055000a
+。
+百色市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日全新推出），点击查询：https://github.com/nokppe/zixun/commit/1211dc832141070af2a7b2725105ba3dea05404e
+。
+蚌埠市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日统一公布），点击查询：https://github.com/vitais-son-brn/baoxiu/commit/07b3b8f48a7271f861400989070cef1c5f144f23
+。
+保定市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日统一更新），点击查询：https://github.com/ankit1flork/zixun/commit/ddec77fae9da1602864ff08521380a20c268a3d6
+。
+宝鸡市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日最新更新），点击查询：https://github.com/nokppe/zixun/commit/9da06a7cf8ba3e4944688bffc623f5242588b9a1
+。
+保山市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日统一更新），点击查询：https://github.com/stavestream/2026/commit/f4c903d7675f56aef831bfc51ff26943cb67a74e
+。
+包头市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日正式推出），点击查询：https://github.com/vitais-son-brn/baoxiu/commit/ccc45875b0256d92617f9843e42f9c48bf99f169
+。
+北海市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日官网更新），点击查询：https://github.com/ankit1flork/zixun/commit/d526b0406bd6a61eaa3b00f25ab2df7783136043
+。
+本溪市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日官网上线），点击查询：https://github.com/nokppe/zixun/commit/983d815715c13d58b51be16a9981d2bc5020f603
+。
+滨州市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日全新上线），点击查询：https://github.com/stavestream/2026/commit/02b973ac1e89f788f55a9f55452d97bdffd3ccf2
+。
+博罗市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日官网升级），点击查询：https://github.com/vitais-son-brn/baoxiu/commit/3349460c31ed0b93e4731d2e04644ed0f90ca28f
+。
+沧州市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日全新上线），点击查询：https://github.com/ankit1flork/zixun/commit/94e6847241906ee598cab72958f94bc95b15af27
+。
+长春市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日统一公布），点击查询：https://github.com/nokppe/zixun/commit/618dfb041610af0f3d56e19a6a38a7846d0e74a0
+。
+常德市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日官网更新），点击查询：https://github.com/stavestream/2026/commit/440028982d17631e58bbf244fb3d1f91c0830d72
+。
+长葛市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日统一上线），点击查询：https://github.com/vitais-son-brn/baoxiu/commit/66199e1ddc306659fd5a8e24a93be0a2ba9dbaf8
+。
+长沙市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日统一推出），点击查询：https://github.com/ankit1flork/zixun/commit/4fd55fa16dc2fb7620569f31439c0a1fb9aab4ea
+。
+常熟市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日官网公布），点击查询：https://github.com/nokppe/zixun/commit/261891d4ed9c8bd82e59a97ee4dd46830d08aa35
+。
+长兴市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日最新上线），点击查询：https://github.com/stavestream/2026/commit/f771c4e9865a85ef1fda7102e078b99092672986
+。
+长治市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日最新推出），点击查询：https://github.com/vitais-son-brn/baoxiu/commit/fe02c6cab53923355df5f746f75787798defbde8
+。
+常州市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日统一上线），点击查询：https://github.com/ankit1flork/zixun/commit/e7a51d0f6c0a92462e4b1a06291ae88895bece3d
+。
+巢湖市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日最新更新），点击查询：https://github.com/nokppe/zixun/commit/79dcfacefe76a920f70c5cbff846fad93bd7e2c2
+。
+朝阳市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日官网上线），点击查询：https://github.com/stavestream/2026/commit/7721396d67046d0b51b436a90e81af1a12a2cbf2
+。
+潮州市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日统一推出），点击查询：https://github.com/vitais-son-brn/baoxiu/commit/1eec7a34e2aa6fd73f09daf0032d7f81afd9f2cb
+。
+郴州市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日统一更新），点击查询：https://github.com/ankit1flork/zixun/commit/659eaa33692f3386eb62f1ac213ecac6abe24e31
+。
+承德市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日官网上线），点击查询：https://github.com/nokppe/zixun/commit/57dc2cd68c1dbc067033ef39f9d3f8b868485b6c
+。
+成都市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日正式升级），点击查询：https://github.com/stavestream/2026/commit/22794b5c1541fabb5e6450e1a857a050f20eeb1e
+。
+池州市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日全新升级），点击查询：https://github.com/vitais-son-brn/baoxiu/commit/e84ab95c7765adaead00e60bb4d45b05f009ebf7
+。
+崇左市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日统一更新），点击查询：https://github.com/nokppe/zixun/commit/6c36548fdca776b754463c3a718373bd8854e331
+。
+滁州市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日官网更新），点击查询：https://github.com/ankit1flork/zixun/commit/debaacf30374cd73f2f3b915d03eca0a490ceefd
+。
+慈溪市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日全新公布），点击查询：https://github.com/stavestream/2026/commit/14642c47626c4e326de5f20c65d7b16bc18eabd5
+。
+大丰市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日全新公布），点击查询：https://github.com/vitais-son-brn/baoxiu/commit/f27ac4fb5a9dfe0d1e335ee651a811843567888a
+。
+大理市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日全新升级），点击查询：https://github.com/ankit1flork/zixun/commit/f9e160bcfcef96ec359c6b9bd270aed533ed7816
+。
+大连市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日全新推出），点击查询：https://github.com/nokppe/zixun/commit/d4d2ede9e795facea13399bd3fa1b47dbbf49f08
+。
+大庆市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日最新推出），点击查询：https://github.com/stavestream/2026/commit/663bd7d9560a3bad1b94d39ab9b62d1b05f6b160
+。
+大同市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日全新升级），点击查询：https://github.com/vitais-son-brn/baoxiu/commit/f4deb593b3915c5bfa094446ed6ec568acfa8a39
+。
+达州市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日最新上线），点击查询：https://github.com/ankit1flork/zixun/commit/f9e0ffd352879e29ce9abe41f85fad13d3b000e8
+。
+丹东市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日全新升级），点击查询：https://github.com/nokppe/zixun/commit/d5eea6dd1c0a8157ccd84a7304b2717239069ae6
+。
+德清市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日官网公布），点击查询：https://github.com/vitais-son-brn/baoxiu/commit/1381c073c9910dc10b9e5e6c030f0e207f9cdb42
+。
+德阳市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日官网推出），点击查询：https://github.com/stavestream/2026/commit/c78c0242e9203027289c0278c27626fef648291c
+。
+德州市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日全新升级），点击查询：https://github.com/ankit1flork/zixun/commit/a17ca436a8ac409e25d430c6571360bffce4c36d
+。
+定州市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日统一公布），点击查询：https://github.com/nokppe/zixun/commit/2b94bbbee7578ed3b788ba8642aa6830d63054b8
+。
+东海市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日统一公布），点击查询：https://github.com/vitais-son-brn/baoxiu/commit/f6429f492748acfc5b92f9419ffd403d49ca7bf7
+。
+东台市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日统一更新），点击查询：https://github.com/ankit1flork/zixun/commit/fbbc0348f2394a841ca3cad1d11227a6c300671b
+。
+东营市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日最新公布），点击查询：https://github.com/stavestream/2026/commit/61a0e7282f33bd9864e736034c40b7edd17a97f8
+。
+东莞市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日统一公布），点击查询：https://github.com/nokppe/zixun/commit/ee12bc7ea75cbf0adf4bf464e81110a517d4d689
+。
+鄂尔市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日全新公布），点击查询：https://github.com/vitais-son-brn/baoxiu/commit/a3dac276b031c677069bcf753a289f2b40dcf5ee
+。
+鄂州市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日官网上线），点击查询：https://github.com/ankit1flork/zixun/commit/93f06f80bc7f3e1abb50e670548c2de0793e2f55
+。
+恩施市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日最新公布），点击查询：https://github.com/stavestream/2026/commit/17afc921fdbe1013b0a708d472127cc7b6a61901
+。
+防城港市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日最新上线），点击查询：https://github.com/nokppe/zixun/commit/5d925762ccd5c0c01f0a27d010cfea5faf46bfe1
+。
+佛山市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日正式推出），点击查询：https://github.com/stavestream/2026/commit/02a4451bc0dd492b897eec62b2a16b5508b02b5a
+。
+抚顺市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日官网上线），点击查询：https://github.com/vitais-son-brn/baoxiu/commit/36447d4f0552d9826d47451c83f5f99fa218562f
+。
+阜新市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日正式更新），点击查询：https://github.com/ankit1flork/zixun/commit/fbffcce5cd4dce547dfb72574f17b4f6df4552a5
+。
+阜阳市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日官网更新），点击查询：https://github.com/nokppe/zixun/commit/75d1559e0e3672680f961d822cc983be5ed6c942
+。
+抚州市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日全新公布），点击查询：https://github.com/ankit1flork/zixun/commit/119ae3643f34a2a5a6c7be6248cdcf37dd144d6d
+。
+福州市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日最新推出），点击查询：https://github.com/stavestream/2026/commit/f572a2c9dfd9c813702135b512bcce4f7406b595
+。
+赣州市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日官网推出），点击查询：https://github.com/vitais-son-brn/baoxiu/commit/c6b49ef03cc901de93e0704d450a189120416e9b
+。
+馆陶市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日统一公布），点击查询：https://github.com/nokppe/zixun/commit/dd6bb76e39f9c30ec8b8b0dd1ca4d30155f2421b
+。
+广安市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日统一更新），点击查询：https://github.com/ankit1flork/zixun/commit/90ad1fa7e05fe150bd54f9af8d5fa71c063624b6
+。
+广元市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日全新升级），点击查询：https://github.com/stavestream/2026/commit/d470319e450188c529215377d9317d2b04745d7a
+。
+广州市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日统一升级），点击查询：https://github.com/vitais-son-brn/baoxiu/commit/54d6cd1b3c864dd1bb198dfed93cd4103bc18f64
+。
+贵港市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日官网更新），点击查询：https://github.com/nokppe/zixun/commit/10dd89ed243e5eb174cbbf724f270523614aeb94
+。
+桂林市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日最新升级），点击查询：https://github.com/stavestream/2026/commit/c648742d5adfe19a6c08db788afecfa9c72180f4
+。
+贵阳市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日最新更新），点击查询：https://github.com/vitais-son-brn/baoxiu/commit/842bb2e0ca71272ecff72496f4d72b0f3994faae
+。
+哈尔滨市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日全新升级），点击查询：https://github.com/nokppe/zixun/commit/9084b3d657dae150fcd2e4f766989de79fb3048f
+。
+海安市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日全新推出），点击查询：https://github.com/ankit1flork/zixun/commit/f5bbd4cfa93274a527aa7b7f0d30a891df7e2378
+。
+海口市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日全新公布），点击查询：https://github.com/stavestream/2026/commit/94967fdde029f825cafd24bf77bb678ce072b75e
+。
+海门市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日全新升级），点击查询：https://github.com/nokppe/zixun/commit/6c994b51dc23e61708d03784c70d367ce29a5d1d
+。
+海宁市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日全新上线），点击查询：https://github.com/ankit1flork/zixun/commit/da6c816a06c5286473c47318195595beaba07b95
+。
+邯郸市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日统一推出），点击查询：https://github.com/vitais-son-brn/baoxiu/commit/a4102329a3d289c71da4862f6b790ef94bf01e8e
+。
+汉中市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日全新更新），点击查询：https://github.com/stavestream/2026/commit/66abbda43b5525a807612117b3d2ea427ce0ca82
+。
+杭州市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日全新升级），点击查询：https://github.com/ankit1flork/zixun/commit/4afce83f712a83728d3aabf4102eefa387cb244a
+。
+鹤壁市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日官网上线），点击查询：https://github.com/nokppe/zixun/commit/4fd537f6b5ded906162bfeb21166cbbe284ecb48
+。
+河池市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日正式上线），点击查询：https://github.com/vitais-son-brn/baoxiu/commit/7918d270f1a55cbb64e6b7857e0a75c037133263
+。
+合肥市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日全新推出），点击查询：https://github.com/stavestream/2026/commit/97c351127e86fe4b5a513c001757459f0292bf13
+。
+河源市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日统一更新），点击查询：https://github.com/nokppe/zixun/commit/a30c0726cea700ddf66c8e2551f6f5dead6f9ecd
+。
+菏泽市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日最新推出），点击查询：https://github.com/ankit1flork/zixun/commit/149108d09f2d5421de2fb7e7fa1994ce7ebcd582
+。
+贺州市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日统一上线），点击查询：https://github.com/vitais-son-brn/baoxiu/commit/7747800d6151a357997894dbc610907cccaf9e44
+。
+衡水市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日最新上线），点击查询：https://github.com/stavestream/2026/commit/f1f807f258f84ef0126585494689123c1a118d16
+。
+衡阳市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日最新上线），点击查询：https://github.com/ankit1flork/zixun/commit/5e19b66ba9e71cf445b6e3ccd36174a34f946d26
+。
+呼和浩特市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日全新推出），点击查询：https://github.com/nokppe/zixun/commit/8e7e1bd9fca67df3d65df3f8a0ce7d7ae115b1b5
+。
+葫芦岛市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日官网上线），点击查询：https://github.com/vitais-son-brn/baoxiu/commit/a3738f84003c592faeeeb3146462b397b4706dd4
+。
+湖州市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日最新公布），点击查询：https://github.com/stavestream/2026/commit/9d5c4fada71fbb18e45511481ce8a2c9d17dbc5b
+。
+淮安市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日全新上线），点击查询：https://github.com/ankit1flork/zixun/commit/46365c5b25372e9f93e419248f073c848edabe26
+。
+淮北市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日全新升级），点击查询：https://github.com/nokppe/zixun/commit/94d0c075dc314743d89860e87a54ed276f42ab77
+。
+怀化市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日正式升级），点击查询：https://github.com/vitais-son-brn/baoxiu/commit/aff91f2faacb992764ed09de429a2dda4c1658fb
+。
+淮南市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日统一公布），点击查询：https://github.com/stavestream/2026/commit/8ad22dae9db14cf4dde5dc9eae616b0db6434701
+。
+黄冈市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日官网上线），点击查询：https://github.com/ankit1flork/zixun/commit/9168add8069f3ff89474cb1a8ec4ee361f52d9ff
+。
+黄山市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日正式升级），点击查询：https://github.com/nokppe/zixun/commit/d75c8f72865e23d72fcdf68eeba51e699a759e0c
+。
+黄石市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日全新上线），点击查询：https://github.com/vitais-son-brn/baoxiu/commit/440f87350cc2efe22fdcad463ca3c1d191566b31
+。
+惠东市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日全新上线），点击查询：https://github.com/stavestream/2026/commit/0cfb632693feeae24158e07bdbd5a727e2274c42
+。
+惠州市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日正式推出），点击查询：https://github.com/ankit1flork/zixun/commit/d53af599113e63a917311ba6f30f789afbe6f665
+。
+霍邱市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日最新公布），点击查询：https://github.com/nokppe/zixun/commit/0f7ad839b46f4eeeb29c552cfa939ed835d364a8
+。
+吉安市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日正式更新），点击查询：https://github.com/stavestream/2026/commit/0286967b21d0a5dce4beafeb6240b1973056ede3
+。
+吉林市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日全新公布），点击查询：https://github.com/vitais-son-brn/baoxiu/commit/5859cd7accff43ed2dd8c31e2bce34e220f33ec9
+。
+济南市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日统一推出），点击查询：https://github.com/ankit1flork/zixun/commit/4445b0f68622c6caade1fbb10fc489c2f5d3964a
+。
+济宁市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日统一更新），点击查询：https://github.com/nokppe/zixun/commit/53b83227f0ccec5b600b34d796546beef7e9eedc
+。
+济源市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日官网升级），点击查询：https://github.com/stavestream/2026/commit/01622bafd65712a29b8fda195ec8bc411fa0db32
+。
+佳木斯市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日统一升级），点击查询：https://github.com/vitais-son-brn/baoxiu/commit/79c4ac0b3bc8212014a501e69bf37c3499d9477f
+。
+嘉善市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日最新升级），点击查询：https://github.com/ankit1flork/zixun/commit/a42ec09d7567f2ff68b6ca069e1adbcd60a383b6
+。
+嘉兴市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日正式上线），点击查询：https://github.com/nokppe/zixun/commit/991d0d030669e9de388340f1f3f81d6f5afcdead
+。
+嘉峪关市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日统一更新），点击查询：https://github.com/vitais-son-brn/baoxiu/commit/6fef30cf8ec133f7bd8b9c3782d78df012488ac4
+。
+建湖市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日统一更新），点击查询：https://github.com/stavestream/2026/commit/3a9158c927b12ee5dd91767f5f222a68eb12978e
+。
+江门市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日官网升级），点击查询：https://github.com/ankit1flork/zixun/commit/249e7157ee6df3808f96b27795008d96c185322d
+。
+江阴市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日官网推出），点击查询：https://github.com/nokppe/zixun/commit/3333691afae6cd8c1bfe907a0b6c9eb4a78f2baa
+。
+焦作市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日官网更新），点击查询：https://github.com/stavestream/2026/commit/4a2afb80ae6a3c20c3bfbf9366549790086aafae
+。
+揭阳市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日正式公布），点击查询：https://github.com/vitais-son-brn/baoxiu/commit/9afae8da2791980f1722addee354d39295273f01
+。
+金华市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日正式公布），点击查询：https://github.com/ankit1flork/zixun/commit/804bd8b18f3f078d885f943d30659c86867a1262
+。
+晋江市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日正式上线），点击查询：https://github.com/nokppe/zixun/commit/2505fb9df5a94366ec2b1c52d9b73afae9b58596
+。
+锦州市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日全新推出），点击查询：https://github.com/stavestream/2026/commit/ac135aa39489770c1b750e30a1e7701b72df013e
+。
+景德镇市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日官网推出），点击查询：https://github.com/vitais-son-brn/baoxiu/commit/b0b403d8fd162a78186ef3be666a429039894d2e
+。
+靖江市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日正式升级），点击查询：https://github.com/ankit1flork/zixun/commit/aad5fad539021469095484aabba194657715a9c8
+。
+荆门市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日正式更新），点击查询：https://github.com/nokppe/zixun/commit/f43fb061e9c2040dc51f6cd8343664e570ba48d5
+。
+荆州市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日统一升级），点击查询：https://github.com/stavestream/2026/commit/d54cda39603309a307bff5f088dc7cb3ed49fae7
+。
+九江市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日最新公布），点击查询：https://github.com/vitais-son-brn/baoxiu/commit/a633bd93abe0c8b1d7505117859de20c46c192ee
+。
+喀什市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日全新更新），点击查询：https://github.com/ankit1flork/zixun/commit/47aeaa67ac68865b74b9ff449954baefae047063
+。
+开封市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日统一推出），点击查询：https://github.com/nokppe/zixun/commit/93a207606cee0bdbb1d8bf6108b9b0e4235f9429
+。
+克拉玛市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日正式上线），点击查询：https://github.com/stavestream/2026/commit/cffa884544ce88d7a10a44a56bae9593b93fafee
+。
+垦利市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日最新更新），点击查询：https://github.com/vitais-son-brn/baoxiu/commit/2e3e2ecd237290872dfab3d88efbd1263115ef69
+。
+昆明市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日官网公布），点击查询：https://github.com/ankit1flork/zixun/commit/b332250ff51620cf99aff22f4eb5f3844a2a3051
+。
+昆山市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日最新更新），点击查询：https://github.com/nokppe/zixun/commit/ea3f00f26efab5adfa04100d2c62844a43145b4e
+。
+拉萨市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日全新公布），点击查询：https://github.com/stavestream/2026/commit/e12fd9e07c5eec57a0cb5495d7cea0a7cac20d1b
+。
+来宾市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日最新上线），点击查询：https://github.com/vitais-son-brn/baoxiu/commit/1fe14118a562468ab4a390cec8d8973bfb6b8865
+。
+莱芜市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日统一推出），点击查询：https://github.com/ankit1flork/zixun/commit/ad92906209f0abd5906c3e1355604181fad99db2
+。
+兰州市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日全新推出），点击查询：https://github.com/nokppe/zixun/commit/637813ae0f8fb96e0998c46854e7cd816ef5eef0
+。
+廊坊市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日官网更新），点击查询：https://github.com/stavestream/2026/commit/b1b0dbf5d5f558c1e44dc60af4a92dadd72d2c3f
+。
+乐清市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日全新更新），点击查询：https://github.com/vitais-son-brn/baoxiu/commit/0853a877376682bfe26dd530b03e8c106bdf81bd
+。
+乐山市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日官网公布），点击查询：https://github.com/ankit1flork/zixun/commit/faa1b2cb4bfdc3ec5f40c335e3fe56011e2ff033
+。
+丽水市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日最新升级），点击查询：https://github.com/nokppe/zixun/commit/85a5b9be1493239995e6f414dea2653f7d4562b9
+。
+连云港市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日正式更新），点击查询：https://github.com/stavestream/2026/commit/f3891fbff0fb00d0ae3cd56c80d3b325f1724e13
+。
+凉山市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日正式升级），点击查询：https://github.com/vitais-son-brn/baoxiu/commit/8764413ffeb991935e115a867ba97b1afbe283af
+。
+聊城市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日官网更新），点击查询：https://github.com/ankit1flork/zixun/commit/bfae235f7a743cfa73eecadcba54424d7e1d2944
+。
+辽阳市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日最新上线），点击查询：https://github.com/nokppe/zixun/commit/4492d08800a14557e076a23f38aeb075b80b4c99
+。
+临汾市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日正式更新），点击查询：https://github.com/stavestream/2026/commit/759f8ff72883a3574d926dbb04ba66d4cde29be0
+。
+临沂市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日官网升级），点击查询：https://github.com/vitais-son-brn/baoxiu/commit/af57e78596c437cb9d3ba416f251d76221f7957a
+。
+六安市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日正式升级），点击查询：https://github.com/ankit1flork/zixun/commit/fcfa56fb561f7b38a874263c388e764a86c8f820
+。
+柳州市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日全新公布），点击查询：https://github.com/nokppe/zixun/commit/163d4aa543e5d396c566973d32b081c08eb750dc
+。
+龙岩市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日全新上线），点击查询：https://github.com/stavestream/2026/commit/899b444f0cd8c372ae5f538232bbb810271a3c0e
+。
+娄底市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日最新公布），点击查询：https://github.com/vitais-son-brn/baoxiu/commit/ab8415f0642fc2f0faf667945c148c49d762c209
+。
+洛阳市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日官网升级），点击查询：https://github.com/ankit1flork/zixun/commit/8c969285067a0fd9c79a25c2916236d29da86c76
+。
+马鞍山市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日全新更新），点击查询：https://github.com/stavestream/2026/commit/4b3d994a55fd1c83284a5559735f6a8f07a3f5a6
+。
+茂名市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日最新公布），点击查询：https://github.com/nokppe/zixun/commit/321012ed8c15792365f6f28dede6aa53ae0322fd
+。
+眉山市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日最新更新），点击查询：https://github.com/vitais-son-brn/baoxiu/commit/f06c64e7945b0791897379f7152a0382633c5829
+。
+梅州市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日全新推出），点击查询：https://github.com/ankit1flork/zixun/commit/4321ecf3bc41bc7837fda59d5d0ab9079d749a51
+。
+绵阳市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日统一推出），点击查询：https://github.com/nokppe/zixun/commit/0d9eb34425ac0241294da19254986dce5cf81ada
+。
+明港市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日官网更新），点击查询：https://github.com/stavestream/2026/commit/f59ff3f9a3425e7bf8a93c12543ca42fd11c4468
+。
+牡丹江市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日正式更新），点击查询：https://github.com/vitais-son-brn/baoxiu/commit/3a20394c95e057afd0597d36cabb9a74d06f20a6
+。
+南安市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日官网推出），点击查询：https://github.com/ankit1flork/zixun/commit/4c95f9095676498e0bbd39dc9584af3eb47db8c6
+。
+南昌市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日统一更新），点击查询：https://github.com/nokppe/zixun/commit/99f5e90e4a7270152d1f34a7d10d3a3c0137d03b
+。
+南充市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日官网更新），点击查询：https://github.com/stavestream/2026/commit/0b56d02d8dfd36419248206b0f4ff8a284bf09db
+。
+南京市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日官网升级），点击查询：https://github.com/vitais-son-brn/baoxiu/commit/7828aff23bf2c50f812dd6fcf9dd5fa07469369f
+。
+南宁市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日全新推出），点击查询：https://github.com/ankit1flork/zixun/commit/83b3a89fdd38b8078c2b402b9477d2627bbe1195
+。
+南平市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日官网更新），点击查询：https://github.com/nokppe/zixun/commit/4cc3de7cb57d674adac72e87421500ee5ba712d3
+。
+南通市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日全新公布），点击查询：https://github.com/stavestream/2026/commit/62f1ed90a6038aba42d16881b88b195023e3d292
+。
+南阳市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日最新更新），点击查询：https://github.com/ankit1flork/zixun/commit/7b52a572ff09d6a12c09db4d615ad65f7c356f52
+。
+内江市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日官网上线），点击查询：https://github.com/vitais-son-brn/baoxiu/commit/9e8c7d0bfb7fd00e5911550a0621dbc43203bded
+。
+宁波市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日统一升级），点击查询：https://github.com/nokppe/zixun/commit/4413a550f361940967034105569c0858941f28c2
+。
+宁德市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日统一推出），点击查询：https://github.com/stavestream/2026/commit/55aea30263fa0bda1888e8c047a797a0de7a1b1b
+。
+宁国市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日官网上线），点击查询：https://github.com/vitais-son-brn/baoxiu/commit/153cd28111734faaa6620497b64c056ba2b17d5e
+。
+盘锦市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日统一更新），点击查询：https://github.com/ankit1flork/zixun/commit/02dafce6b8a9eb809fa7091d646c1ea2cdd1f21f
+。
+攀枝花市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日全新更新），点击查询：https://github.com/nokppe/zixun/commit/c8d536b22906adb4869263da4463a612fbe56224
+。
+平顶山市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日最新推出），点击查询：https://github.com/stavestream/2026/commit/12c3aa6426648fba1d3e025348d2f3f780ff93ac
+。
+萍乡市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日全新更新），点击查询：https://github.com/vitais-son-brn/baoxiu/commit/01ae0b4e9ca625d46f02d8923dfac64934bca667
+。
+莆田市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日正式上线），点击查询：https://github.com/ankit1flork/zixun/commit/d8c6f93f754295b2679c49c5a5bdfe933b1f4c38
+。
+启东市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日官网公布），点击查询：https://github.com/nokppe/zixun/commit/abccfc31f9ed41381c124fccd0db6c473370408d
+。
+齐齐哈尔市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日统一更新），点击查询：https://github.com/stavestream/2026/commit/ceee717527988062ad0055705945f1590ef24fb0
+。
+潜江市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日官网公布），点击查询：https://github.com/vitais-son-brn/baoxiu/commit/e208673be26ff54d4ec357c50174256c8f415f09
+。
+秦皇岛市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日统一公布），点击查询：https://github.com/ankit1flork/zixun/commit/41b4ea3ed142b23de9155f59b09ef88e23bd853c
+。
+钦州市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日统一升级），点击查询：https://github.com/nokppe/zixun/commit/1652de1f3740541270c750b6a007c3fce18c223b
+。
+青岛市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日全新升级），点击查询：https://github.com/stavestream/2026/commit/b94003f03999db2bddeaf4285d32e7150e38de22
+。
+清远市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日统一升级），点击查询：https://github.com/vitais-son-brn/baoxiu/commit/5a5a7f604e63c5981681257cdc3ff80c7f6135b7
+。
+曲靖市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日官网推出），点击查询：https://github.com/ankit1flork/zixun/commit/2f643f7f777819a9695d3a18e041aed7b37c0d78
+。
+泉州市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日统一更新），点击查询：https://github.com/nokppe/zixun/commit/f4f1f7e2dd8c5b673d20c49a5ebb5f0a2e00bda4
+。
+日照市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日全新上线），点击查询：https://github.com/stavestream/2026/commit/a634817a634474c58b07b4063a8d644d2c32a919
+。
+如东市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日官网更新），点击查询：https://github.com/vitais-son-brn/baoxiu/commit/d6740d752e3dcadc2f3975a0e85edf054a7aa197
+。
+如皋市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日最新推出），点击查询：https://github.com/ankit1flork/zixun/commit/cd30ffca9d22d99624993c80afeeb8ccf3805b60
+。
+瑞安市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日统一升级），点击查询：https://github.com/nokppe/zixun/commit/cc51ca12efd1acc5c00097191f4ba26f5a3dc609
+。
+三门峡市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日官网公布），点击查询：https://github.com/stavestream/2026/commit/3e95c251461475b560c96043c34085ed6397982f
+。
+三明市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日官网推出），点击查询：https://github.com/ankit1flork/zixun/commit/764eb7ad2fabf5341c20e5932a513bbc71527ad9
+。
+三亚市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日统一公布），点击查询：https://github.com/vitais-son-brn/baoxiu/commit/fc01be97a6eda050f2dea630c9e9c11f4803ed38
+。
+汕头市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日正式推出），点击查询：https://github.com/nokppe/zixun/commit/788e4aa861f2ea248973af9945621de6e36d1854
+。
+汕尾市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日官网公布），点击查询：https://github.com/stavestream/2026/commit/b814bd723c0615c2ae6b8cbfba0a2feab42cedac
+。
+上海市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日最新上线），点击查询：https://github.com/vitais-son-brn/baoxiu/commit/97999d2c7ef2e9e4d362ecd9fa86bf298584659f
+。
+商丘市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日最新上线），点击查询：https://github.com/ankit1flork/zixun/commit/e0aafd53ae50fa17fcc48651a4d27fa16005555c
+。
+上饶市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日统一升级），点击查询：https://github.com/nokppe/zixun/commit/d51846ba5a7362556c680a9f0160dd8a09c467e5
+。
+韶关市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日官网上线），点击查询：https://github.com/stavestream/2026/commit/b5f6a99ff0c9eb712645e1cd9c4f6a26f9a574e7
+。
+绍兴市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日统一升级），点击查询：https://github.com/vitais-son-brn/baoxiu/commit/aef2379bbd149fc3d396dc66e9bb6b4209349a0c
+。
+邵阳市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日官网更新），点击查询：https://github.com/ankit1flork/zixun/commit/30616e6c1d8c662fc7a6b31c13446329f0777360
+。
+神农架市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日正式升级），点击查询：https://github.com/stavestream/2026/commit/80d3a7277444996531c46e1f70b02eff2d915d91
+。
+沈阳市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日全新推出），点击查询：https://github.com/nokppe/zixun/commit/390934e5ff8b2183eb5f6708bb33f51ee5cb789e
+。
+深圳市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日官网升级），点击查询：https://github.com/ankit1flork/zixun/commit/9285292d2eccb29a21fcc1d9ef43ef8d3faa1bea
+。
+石河子市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日官网推出），点击查询：https://github.com/vitais-son-brn/baoxiu/commit/c0fc5f20a16f907a06dc1f409dc30c16a003ebca
+。
+石家庄市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日正式上线），点击查询：https://github.com/nokppe/zixun/commit/e85d126aeea272b4f8fe43583e9d4acb7b624859
+。
+石狮市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日全新上线），点击查询：https://github.com/stavestream/2026/commit/14a6e28a7e2fa5ddb37bde198a224c8734faff2b
+。
+十堰市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日正式上线），点击查询：https://github.com/ankit1flork/zixun/commit/037e400ac7881c22a8e715e901cbce3706722a48
+。
+寿光市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日统一推出），点击查询：https://github.com/vitais-son-brn/baoxiu/commit/0e38b72cbc5375940f23d888d55ef98b0ac64fad
+。
+顺德市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日全新更新），点击查询：https://github.com/nokppe/zixun/commit/5461f9736f8979334f9fd74f9cde66288e249eb6
+。
+四平市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日统一上线），点击查询：https://github.com/stavestream/2026/commit/d8d690803f01338bc748a0f4d1ab94e4af02fb51
+。
+宿迁市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日统一升级），点击查询：https://github.com/ankit1flork/zixun/commit/9e09e4eaee2a47e3328848490f67b7fde6e31f22
+。
+苏州市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日统一更新），点击查询：https://github.com/vitais-son-brn/baoxiu/commit/eecf2ac87a76bb505ca6b9a1ce694e7500781b72
+。
+宿州市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日正式升级），点击查询：https://github.com/stavestream/2026/commit/1b8ddd5bd8a1eb5b92de33d96510966acc88a1c1
+。
+遂宁市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日官网升级），点击查询：https://github.com/nokppe/zixun/commit/c67ac12bfa5f969c8a59b89363dbe533b259f27f
+。
+随州市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日全新升级），点击查询：https://github.com/ankit1flork/zixun/commit/4b5a6b248f8f335bc94b2831cb5fe88b1bf46db4
+。
+泰安市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日全新推出），点击查询：https://github.com/vitais-son-brn/baoxiu/commit/d5319a1c1760b5186c1a27573f1e71d78b746af9
+。
+台山市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日最新公布），点击查询：https://github.com/stavestream/2026/commit/094c9d208af1378b5eb32d9c1c4745eec8160160
+。
+泰兴市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日统一上线），点击查询：https://github.com/nokppe/zixun/commit/8af64eec0e2944f677eeebee0bd2c7f180f45ad7
+。
+太原市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日统一上线），点击查询：https://github.com/ankit1flork/zixun/commit/2a2aaf9a6c83a9049a50a5055638a7b0e4f0d563
+。
+泰州市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日官网上线），点击查询：https://github.com/vitais-son-brn/baoxiu/commit/ec10e36e93ac8fe4955b33981bf4f79007e4cc3e
+。
+唐山市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日全新更新），点击查询：https://github.com/nokppe/zixun/commit/9375965211b75ece53f774d0de1f4ff66c966781
+。
+天长市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日统一推出），点击查询：https://github.com/stavestream/2026/commit/00027e7b1acb3b946526b91f66b31543faada100
+。
+天津市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日正式更新），点击查询：https://github.com/ankit1flork/zixun/commit/d59cc6a849c6c7c4128047514908df75826d7daa
+。
+天门市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日最新更新），点击查询：https://github.com/vitais-son-brn/baoxiu/commit/67dad497c8c59683996082cd3a7cf655c095d7e5
+。
+天水市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日官网推出），点击查询：https://github.com/nokppe/zixun/commit/fbf88473d90cc0bb26e5a8448e7ec9ad437d49cd
+。
+铁岭市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日官网升级），点击查询：https://github.com/stavestream/2026/commit/d3b33f681ada4a6a9567b094da96266f8de642ee
+。
+桐城市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日正式更新），点击查询：https://github.com/ankit1flork/zixun/commit/42494eda39f6a6ff705946a12f4ddbdf3171f8a9
+。
+铜川市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日全新推出），点击查询：https://github.com/vitais-son-brn/baoxiu/commit/8fedfad7ec83784b4b0cb767fa5443b27b556bca
+。
+铜陵市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日全新上线），点击查询：https://github.com/nokppe/zixun/commit/54edb8db0fecf367287b1bb518a0bbff683a6814
+。
+桐乡市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日统一上线），点击查询：https://github.com/stavestream/2026/commit/9ed9af5cbda977b7e45e93bbceb4c6b9d2eeff43
+。
+瓦房店市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日全新上线），点击查询：https://github.com/ankit1flork/zixun/commit/f9e52d9aeb18dbfe09cf120ad8fb48cceae46365
+。
+潍坊市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日全新公布），点击查询：https://github.com/vitais-son-brn/baoxiu/commit/f15638ddb2cd49df18aa7afb077b243ec6d8fbb8
+。
+威海市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日正式推出），点击查询：https://github.com/nokppe/zixun/commit/e78b563a49407ee1a7073b9a34ed5892e71e7d80
+。
+温岭市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日全新升级），点击查询：https://github.com/stavestream/2026/commit/8444662422fec8f8a3c7e6d2bd7a9b4834f380b1
+。
+温州市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日正式推出），点击查询：https://github.com/ankit1flork/zixun/commit/7af01edd8d9e241ea529f041dd9e44aac67ebdb9
+。
+武汉市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日最新升级），点击查询：https://github.com/vitais-son-brn/baoxiu/commit/b4a592ccb18f7818f959a01a519fa3dbbad2340d
+。
+芜湖市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日正式公布），点击查询：https://github.com/stavestream/2026/commit/6f7568fdfaf9312d20e410087ff935bca5ed9b74
+。
+乌鲁木齐市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日全新公布），点击查询：https://github.com/nokppe/zixun/commit/0abf7b48841272466905a3a3b8dc9c900cc4095d
+。
+无锡市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日全新升级），点击查询：https://github.com/ankit1flork/zixun/commit/01da40908381817901be8ae3420b0e50754d77f0
+。
+武夷山市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日最新公布），点击查询：https://github.com/vitais-son-brn/baoxiu/commit/2e83d41aa5d15be0f105ffd43bb0c933b8ee30e5
+。
+梧州市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日统一上线），点击查询：https://github.com/stavestream/2026/commit/6c21ee117544df1bb76fe0c2a7c6e0bbc43ccc01
+。
+西安市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日最新更新），点击查询：https://github.com/nokppe/zixun/commit/3e06b2844ad9a7847a8e9a423740a36243228805
+。
+西宁市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日官网上线），点击查询：https://github.com/vitais-son-brn/baoxiu/commit/79b86d40b2131626932193f75447ee7f381bdf0f
+。
+厦门市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日官网公布），点击查询：https://github.com/ankit1flork/zixun/commit/03bdd96fc9083213675ae7e354134ccc59ea389b
+。
+咸宁市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日官网公布），点击查询：https://github.com/nokppe/zixun/commit/7b530022fb775ca1346696bd2b6de430bf2b27ba
+。
+仙桃市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日全新升级），点击查询：https://github.com/stavestream/2026/commit/0ca3b69f513cc94827c66c1c87346b18ac835a45
+。
+咸阳市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日全新公布），点击查询：https://github.com/vitais-son-brn/baoxiu/commit/56ad00c1050a77080a257513c76298f994871fe7
+。
+襄樊市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日全新更新），点击查询：https://github.com/ankit1flork/zixun/commit/e8248338d13fb1b20bff0949c7ee8858c42aa63b
+。
+象山市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日统一升级），点击查询：https://github.com/stavestream/2026/commit/1075b60e1fd9937fca3b750c42cd804e031bfe89
+。
+湘潭市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日官网推出），点击查询：https://github.com/nokppe/zixun/commit/0ab5001e19d62c8518e678f3ec2c1849304062a8
+。
+湘西市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日全新公布），点击查询：https://github.com/ankit1flork/zixun/commit/ae26ecfce98bbf466b2023f4f9db4d6d12be8647
+。
+襄阳市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日全新更新），点击查询：https://github.com/vitais-son-brn/baoxiu/commit/0bbd0635711f626d42ccb389f3e3ea47a344aed9
+。
+孝感市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日正式更新），点击查询：https://github.com/stavestream/2026/commit/6a10081667fb7e64e9a9718ce310b4bbdac8cbbd
+。
+萧山市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日统一推出），点击查询：https://github.com/nokppe/zixun/commit/01fb1093b0483fd0a5129febec824da889eab4b2
+。
+新乡市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日最新公布），点击查询：https://github.com/vitais-son-brn/baoxiu/commit/234f6b78c7ccec9d376daeeae01b6b54ce88ec85
+。
+信阳市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日官网上线），点击查询：https://github.com/ankit1flork/zixun/commit/88066e9da91daa915f60a2bf3ba4ef99513991cd
+。
+新沂市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日正式上线），点击查询：https://github.com/nokppe/zixun/commit/1a496590c783aba2cd6dff1adebeb74a0a0ee945
+。
+新余市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日全新升级），点击查询：https://github.com/stavestream/2026/commit/13c25120c2ea862f6327e74e2a24a23cafbadaf6
+。
+兴化市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日官网公布），点击查询：https://github.com/vitais-son-brn/baoxiu/commit/06788f2a6d37baf945bd536376f1f2d0d3d969c9
+。
+邢台市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日官网公布），点击查询：https://github.com/ankit1flork/zixun/commit/dc0dc357f1b347e1fee1a6b15f5092c88b70f551
+。
+许昌市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日最新更新），点击查询：https://github.com/nokppe/zixun/commit/251001f0366f9957c3ea26312929568899de06b4
+。
+徐州市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日全新推出），点击查询：https://github.com/stavestream/2026/commit/b742151d30f6325322d29ced25239ea1d2544a5b
+。
+宣城市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日正式推出），点击查询：https://github.com/ankit1flork/zixun/commit/4b2289ae9668d218d2297fb2712e6f09776fa806
+。
+雅安市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日统一上线），点击查询：https://github.com/vitais-son-brn/baoxiu/commit/239188eea36d4f136e38a83c3d70c787f2539767
+。
+延安市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日统一升级），点击查询：https://github.com/nokppe/zixun/commit/3038a4413a23ee650ddd6ad2aeda1f3d7ff5a3d4
+。
+盐城市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日统一公布），点击查询：https://github.com/stavestream/2026/commit/0fd431fa53b0e786e50979626c9985a85a613771
+。
+烟台市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日正式上线），点击查询：https://github.com/vitais-son-brn/baoxiu/commit/5372dd22c4beb9d6dffdca7a404f8947fcbf7ef2
+。
+阳春市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日最新推出），点击查询：https://github.com/ankit1flork/zixun/commit/3e6194af665e3742dc1244ccd6b89d93909da6c8
+。
+阳江市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日统一推出），点击查询：https://github.com/nokppe/zixun/commit/8d23101a46272f6e4186cfb6d37b8e62468c0258
+。
+阳泉市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日全新公布），点击查询：https://github.com/stavestream/2026/commit/4e1fbac6e8ed37d3f77a74fc468a6eb0ab1feb9c
+。
+扬中市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日统一推出），点击查询：https://github.com/vitais-son-brn/baoxiu/commit/e5c3d31ab991e6959c1ee45140bac16e96274b24
+。
+扬州市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日官网升级），点击查询：https://github.com/ankit1flork/zixun/commit/dc6b4171db074d4b4993a3b072a9f8a365761406
+。
+宜宾市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日最新升级），点击查询：https://github.com/nokppe/zixun/commit/c37b5931f0f4d891a326a2c5d4a454ebc936efed
+。
+宜昌市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日全新更新），点击查询：https://github.com/stavestream/2026/commit/e6d20ee7860c7d327cc31e802b29d48ea90c2ea0
+。
+宜春市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日全新推出），点击查询：https://github.com/ankit1flork/zixun/commit/945deac9427dcf16cb675bc4d0cd835d32e353bc
+。
+宜都市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日全新升级），点击查询：https://github.com/vitais-son-brn/baoxiu/commit/79191828f29e03802dd9306cd61322b9213c83b8
+。
+义乌市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日全新推出），点击查询：https://github.com/nokppe/zixun/commit/e133c2d279e9fdb6569716c9cae53a4f77ebb65b
+。
+宜兴市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日全新升级），点击查询：https://github.com/stavestream/2026/commit/49f4bc6f0e2144dbbfc2375084e2c1dcd58c2a9b
+。
+益阳市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日最新升级），点击查询：https://github.com/ankit1flork/zixun/commit/e4290faf8ab3298ed0b39afc085d49bd2ddd4324
+。
+银川市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日最新推出），点击查询：https://github.com/nokppe/zixun/commit/0a08d0a0feacabac9f4f09c0462d943ac93b0288
+。
+营口市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日统一更新），点击查询：https://github.com/vitais-son-brn/baoxiu/commit/b0eac703cd07a88668ca02b33e50229fca3820d4
+。
+鹰潭市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日统一更新），点击查询：https://github.com/stavestream/2026/commit/6d89b40af913775571d71c9c72c79af7d419169a
+。
+永新市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日正式推出），点击查询：https://github.com/ankit1flork/zixun/commit/e5fed2be276b9beeb0001e5b32c6ee8a138fcdf3
+。
+永州市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日统一更新），点击查询：https://github.com/vitais-son-brn/baoxiu/commit/695c94ff9515acd98aab7dc44944133d4a1604d6
+。
+榆林市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日正式公布），点击查询：https://github.com/nokppe/zixun/commit/b345d9882b84b44c2ad5bfca755e9becb58d7396
+。
+玉林市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日官网上线），点击查询：https://github.com/stavestream/2026/commit/6812cf86dcfb06fdd7b72f2f6d014c38f6591d27
+。
+玉溪市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日正式公布），点击查询：https://github.com/ankit1flork/zixun/commit/41d1e1a8b22fe7d31581c71dc52bb65f7a57eacc
+。
+余姚市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日统一升级），点击查询：https://github.com/nokppe/zixun/commit/2ae72deb6e01ee53912bdb648bbc0f6a0f1a30b2
+。
+禹州市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日最新更新），点击查询：https://github.com/vitais-son-brn/baoxiu/commit/1d29c04008f28ce3c42a5fc18ccb701bad702808
+。
+岳阳市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日统一上线），点击查询：https://github.com/stavestream/2026/commit/60a712ca2dc1c40d329f3e11363b3c733cce86de
+。
+云浮市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日最新升级），点击查询：https://github.com/ankit1flork/zixun/commit/06d3e83c3d67485f39841ac0b9b579a04522c2d9
+。
+枣庄市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日全新推出），点击查询：https://github.com/nokppe/zixun/commit/6c390ee78bc45e9c70b2a3ce62c6c3244d4646f3
+。
+湛江市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日正式更新），点击查询：https://github.com/vitais-son-brn/baoxiu/commit/a3c4d61b16f484f0176b2408bf0622bc132573f3
+。
+张家界市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日全新更新），点击查询：https://github.com/stavestream/2026/commit/ca183aec836e05edf77016350cbcaf73d91bb65c
+。
+张家口市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日最新推出），点击查询：https://github.com/ankit1flork/zixun/commit/0b7523f14d1f40369920b864862853ac809b03b4
+。
+章丘市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日最新上线），点击查询：https://github.com/vitais-son-brn/baoxiu/commit/67e545ec188a40b49bfb8141680851047aaaa12f
+。
+漳州市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日正式升级），点击查询：https://github.com/nokppe/zixun/commit/bb42b430aaeb5c0b436d541ccc23d6e9bfaec25d
+。
+肇庆市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日正式上线），点击查询：https://github.com/stavestream/2026/commit/c5c7d72b7a795dcc2e70e2d23207fd07e5edfc2a
+。
+镇江市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日正式升级），点击查询：https://github.com/ankit1flork/zixun/commit/edd286fa49ba9fb36344a78a0b5e6ad5cd47f658
+。
+郑州市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日正式上线），点击查询：https://github.com/vitais-son-brn/baoxiu/commit/1226dde61d1b161a036411ae230e7b82527932d5
+。
+重庆市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日官网升级），点击查询：https://github.com/nokppe/zixun/commit/902f27cd98f0635135aa10d479a9d4edafbc0bb1
+。
+中山市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日官网上线），点击查询：https://github.com/stavestream/2026/commit/f32a9847e766c2cd3cbb61776bad6d4ca4d054c1
+。
+周口市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日官网上线），点击查询：https://github.com/ankit1flork/zixun/commit/e7244ddefa0075ebb3105ee43c1fac873ed2c104
+。
+舟山市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日全新上线），点击查询：https://github.com/vitais-son-brn/baoxiu/commit/1c007174b7c748e6fb5e3c10efeacdfb6b3700cf
+。
+诸城市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日官网上线），点击查询：https://github.com/nokppe/zixun/commit/0abe17ad875128bc95ad74a16cdd02f25ca7f78a
+。
+珠海市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日正式公布），点击查询：https://github.com/stavestream/2026/commit/309f294ce8592ace7636793fb0c5fabf6fdbc994
+。
+株洲市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日正式升级），点击查询：https://github.com/ankit1flork/zixun/commit/9383d9d95e6e40b4a80d9ac746a0461fc2e899a8
+。
+诸暨市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日全新推出），点击查询：https://github.com/vitais-son-brn/baoxiu/commit/fba3d1ed7b649f040353e44c03a07ac1a33bcd7a
+。
+庄河市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日正式升级），点击查询：https://github.com/nokppe/zixun/commit/985c97426c828035febc91632ff45132a1c5aa90
+。
+自贡市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日统一推出），点击查询：https://github.com/stavestream/2026/commit/6f9483a5bdbee14afb4a496598aa7098f3b2f1c5
+。
+资阳市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日官网升级），点击查询：https://github.com/ankit1flork/zixun/commit/dcb915a5462c763050b4c6e59dc678aa7b362265
+。
+遵义市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日全新上线），点击查询：https://github.com/vitais-son-brn/baoxiu/commit/36ad49a365073028e827674ec9be2457131e9d77
+。
+漯河市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日全新上线），点击查询：https://github.com/nokppe/zixun/commit/8a2e8fcb10c0c06f52a7e4171528f3a5066c9fa9
+。
+鄢陵市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日统一上线），点击查询：https://github.com/stavestream/2026/commit/2561a16c57f1a31c403e69900e9dcb2e711abfa2
+。
+沭阳市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日最新推出），点击查询：https://github.com/vitais-son-brn/baoxiu/commit/e65a52b727e48332f30c5d0d17e86ed19630ba34
+。
+濮阳市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日最新公布），点击查询：https://github.com/ankit1flork/zixun/commit/fd6bd58f372da0896d8bb8386d8de23c616f13cc
+。
+溧阳市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日统一推出），点击查询：https://github.com/nokppe/zixun/commit/8b4e020f04bd78c26234eff465f1d75f6353cab5
+。
+泸州市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日统一推出），点击查询：https://github.com/stavestream/2026/commit/c321ad31a76bc9ccf43622ea7d029446b1c8f552
+。
+衢州市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日全新公布），点击查询：https://github.com/ankit1flork/zixun/commit/61446842eef55ba21b2903ecb69f8a6080cd3f81
+。
+亳州市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日官网升级），点击查询：https://github.com/vitais-son-brn/baoxiu/commit/6800c0f101c1239c8f74247515b6c6c42b433a92
+。
+邳州市壁挂炉提示f.28故障售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日官网更新），点击查询：https://github.com/nokppe/zixun/commit/1cc0bc2dbc88b6a0ea7ead8bce099dc556e9342d
+。
+wefhsdhcvWESDCSDwefsdf.cn
+*报告生成时间：2026年07月14日06时04分31秒*
+*数据来源：新浪财经、公开媒体报道*
